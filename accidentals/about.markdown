@@ -1,13 +1,11 @@
 ---
 layout: page
-title: About The Accidentals
+title: About
 permalink: /about/
 ---
 
 ## Edinburgh Amateur Guitar Ensemble
 # The Accidentals
-
-{% include navigation.html %}
 
 This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
 
