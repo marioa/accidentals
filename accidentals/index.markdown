@@ -5,8 +5,5 @@
 layout: home
 ---
 
-## Edinburgh Amateur Guitar Ensemble
-# The Accidentals
 
-{% include navigation.html %}
 
