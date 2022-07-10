@@ -1,10 +1,12 @@
 # Accidentals
 
+Web site for an Edinburgh (UK) based amateur guitar ensemble.
+
 First time only:
 
 ```bash
-$ jekyll new accidentals
-$ cd accidentals
+$ jekyll new docs
+$ cd docs
 $ bundle add webrick
 ```
 
