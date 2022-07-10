@@ -25,3 +25,4 @@ is a termly fee of £75 (£37.50 for students) in order to cover room hire, tuto
 fees and the purchase of music. Please contact us by email if you wish any more 
 information.
 
+![The accidentals at the Royal Infirmary Edinburgh](/images/assets/accidentals_rie.png)
