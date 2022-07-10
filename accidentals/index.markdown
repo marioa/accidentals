@@ -5,5 +5,5 @@
 layout: home
 ---
 
-
+![The accidentals performing](/images/assets/accidentals.png)
 
