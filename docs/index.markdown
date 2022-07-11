@@ -13,5 +13,5 @@ American music.
 
 ![The accidentals performing](/images/assets/accidentals.png)
 
-We welcome any new members.
+We welcome new members.
 
