@@ -33,7 +33,7 @@ You can find more YouTube accidentals recordings [here](https://www.youtube.com/
 * [Forrest Guitar Ensembles](https://www.classical-guitar-school.com/)
 * [Forrest Guitar Ensembles](http://www.forrestguitarensembles.co.uk/)
 * [Music for Classical Guitar](https://guitarmusic.info/)
-* [Sheet music for classical guitar (notation)](https://www.scoreexchange.com/instruments/classical-guitar-notation.html
+* [Sheet music for classical guitar (notation)](https://www.scoreexchange.com/instruments/classical-guitar-notation.html)
 * [Free Classical Guitar Sheet Music](https://www.delcamp.net/)
 * [Richard Yates Classical Guitar Transcriptions](http://www.yatesguitar.com/)
 * [Learn Classical Guitar Today](http://www.learn-classical-guitar-today.com/best-free-classical-guitar-sheet-music.html)
