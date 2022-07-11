@@ -4,7 +4,7 @@ title: Links
 permalink: /links/
 ---
 
-## Contents
+### Contents
 
 * [The Accidentals on YouTube](#the-accidentals-on-you-tube)
 * [Guitar music websites](#guitar-music-websites)
