@@ -10,7 +10,7 @@ meet on a weekly basis in Sep-Dec and Jan-Apr on Monday evenings at the
 There are no auditions but please do let us know if you would like to try us out
 before trying out a session to see if it is your kind of thing. We are always 
 looking for new players of all standards to join us, the only requirement is that 
-you need to be able to read music at least a little.
+you need to be able to read music.
 
 We play a wide variety of music and a typical concert programme will see us playing 
 a selection of Renaissance, Baroque, Classical, Romantic and 20th Century music as 
