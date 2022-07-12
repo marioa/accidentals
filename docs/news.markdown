@@ -19,12 +19,12 @@ No announcements.
 
 * 18 March 2022, Concert at St Vincent's Chapel.
 * Pandemic hiatus.
-* 23 March 2018, Concert with guests Vivace (mandolin, mandola and guitar group).
+* 23 March 2018, Concert with guests Vivace (a subset of EMGO including mandolins, mandola and guitars).
 * 12 March 2016, [Edinburgh Competition Festival](https://www.ecfest.org/), Orchestra Class (not competing), St Cuthbert's at 3pm.
 * 18 March 2016, Morningside Parish Church Hall, Braid Road at 7pm (prompt start time). 
 * 5 March 2016, [Edinburgh Competition Festival](https://www.ecfest.org/), Guitar Ensembles: Open, St Cuthbert's.
 * End of Term Concert Monday December 9th 2013.
-* Combined concert with the [Edinburgh Mandolin and Guitar Orchestra](http://emgo.org.uk/).
+* Combined concert with the [Edinburgh Mandolin and Guitar Orchestra (EMGO)](http://emgo.org.uk/).
 * Saturday August 3rd, 7.30pm, Quaker Meeting House, Victoria Terrace, Edinburgh.
 * End of Term Concert Saturday March 30th 2013 7.15pm.
 * [Edinburgh Competition Festival](https://www.ecfest.org/), March 2013.
