@@ -24,7 +24,7 @@ description: >- # this means to ignore newlines until "baseurl:"
   The Accidentals are an Edinburgh (UK) based amateur classical guitar 
   ensemble. New members are welcomed.
 domain: "accidentals.org.uk"
-baseurl: "/accidentals" # the subpath of your site, e.g. /blog
+baseurl: "" # the subpath of your site, e.g. /blog
 url:  "https://www.accidentals.org.uk"# the base hostname & protocol for your site, e.g. http://example.com
 #github_username:  marioa
 
