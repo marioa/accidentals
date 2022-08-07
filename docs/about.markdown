@@ -16,10 +16,6 @@ We play a wide variety of music and a typical concert programme will see us play
 a selection of Renaissance, Baroque, Classical, Romantic and 20th Century music as 
 well as a selection of Spanish and Latin American music.
 
-The Accidentals are currently lead by 
-[Mike McGeary](https://www.rcs.ac.uk/staff/michael-mcgeary/), 
-a professional guitarist and teacher based in Edinburgh.
-
 The Accidentals are a non-profit organisation but in order to cover our costs there 
 is a termly fee of £75 (£37.50 for students) in order to cover room hire, tutor 
 fees and the purchase of music. Please contact us by email if you wish any more 
