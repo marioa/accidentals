@@ -15,4 +15,4 @@ American music.
 
 We welcome new members.
 
-![The accidentals in a summer do](/images/assets/accidentals3.png)
+![The accidentals in a summer do](/images/assets/accidentals3.jpg)
