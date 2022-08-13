@@ -13,7 +13,7 @@ The next Accidental Term dates will be:
 
 ## Future concerts
 
-No announcements.
+* 10 December 2022, proposed end of term concert.
 
 ## Past concerts
 
