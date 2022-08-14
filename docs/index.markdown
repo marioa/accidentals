@@ -7,7 +7,7 @@ layout: home
 
 ![The accidentals performing](/images/assets/accidentals.png)
 
-<p/>
+<br/>
 
 The Accidentals are an Edinburgh (UK) based classical guitar ensemble
 that play a wide variety of music and a typical concert
@@ -17,9 +17,11 @@ American music.
 
 We welcome new members.
 
-<p/>
+<br/>
 
 ![The accidentals in a summer do](/images/assets/accidentals3.jpg)
+
+<br/>
 
 We meet on a weekly basis in Sep-Dec and Jan-Apr on Monday evenings
 at the [Meadows Croquet
