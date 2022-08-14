@@ -7,6 +7,8 @@ layout: home
 
 ![The accidentals performing](/images/assets/accidentals.png)
 
+<p/>
+
 The Accidentals are an Edinburgh (UK) based classical guitar ensemble
 that play a wide variety of music and a typical concert
 programme will feature Renaissance, Baroque, Classical, Romantic
@@ -15,4 +17,16 @@ American music.
 
 We welcome new members.
 
+<p/>
+
 ![The accidentals in a summer do](/images/assets/accidentals3.jpg)
+
+We meet on a weekly basis in Sep-Dec and Jan-Apr on Monday evenings
+at the [Meadows Croquet
+pavillion](https://meadowscroquet.org.uk/club/find.php).  We are a
+non-profit organisation but in order to cover our costs there is a
+termly fee of £75 (£37.50 for students) in order to cover room hire,
+tutor fees and the purchase of music. Please [contact
+us](mailto:mario@epcc.ed.ac.uk) by email if you wish any more
+information or would like to try us out to see if it is something
+you want to do.
