@@ -8,7 +8,7 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* 19:15-21:15, 26th Sep 2022 – 5th Dec 2022 (11 sessions) with concert maybe on the 10th Dec.
+* 19:15-21:15, 26th Sep 2022 – 28th Nov 2022 (10 sessions) with concert maybe on the 3rd Dec.
 * 19:15-21:15, 9th Jan 2023 – 20th March 2023 (11 sessions) with concert at a venue TBD.
 
 ## Future concerts
