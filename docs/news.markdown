@@ -18,7 +18,7 @@ The next Accidental Term dates will be:
 ## Past concerts
 
 * 18 March 2022, Concert at St Vincent's Chapel.
-* Pandemic hiatus.
+* 2019-2022 Pandemic hiatus.
 * 23 March 2018, Concert with guests Vivace (a subset of EMGO including mandolins, mandola and guitars).
 * 12 March 2016, [Edinburgh Competition Festival](https://www.ecfest.org/), Orchestra Class (not competing), St Cuthbert's at 3pm.
 * 18 March 2016, Morningside Parish Church Hall, Braid Road at 7pm (prompt start time). 
