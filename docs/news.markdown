@@ -8,15 +8,15 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* 19:15-21:15, 26th Sep 2022 – 28th Nov 2022 (10 sessions) with concert on the 3rd Dec.
 * 19:15-21:15, 9th Jan 2023 – 20th March 2023 (11 sessions) with concert at a venue TBD.
 
 ## Future concerts
 
-* 10 December 2022, proposed end of term concert.
+* March/April Concert.
 
 ## Past concerts
 
+* 03 December 2022, end of term concert.
 * 18 March 2022, Concert at St Vincent's Chapel.
 * 2019-2022 Pandemic hiatus.
 * 23 March 2018, Concert with guests Vivace (a subset of EMGO including mandolins, mandola and guitars).
