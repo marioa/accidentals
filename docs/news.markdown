@@ -8,11 +8,11 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* 19:15-21:15, 9th Jan 2023 – 20th March 2023 (11 sessions) with concert at a venue TBD.
+* 19:15-21:15, 9th Jan 2023 – 20th March 2023 (11 sessions) with concert on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 
 ## Future concerts
 
-* March/April Concert.
+* Concert on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 
 ## Past concerts
 
