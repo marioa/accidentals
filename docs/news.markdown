@@ -13,6 +13,7 @@ The next Accidental Term dates will be:
 ## Future concerts
 
 * Concert on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
+* Event 261, Guitar Ensembles: Open, [Edinburgh Music Competition Festival](https://www.ecfest.org/), 3pm, St Mark's Unitarian Church, 7 St Mark's Castle Terrace, Edinburgh, EH1 2DP.
 * 1pm, Saturday 25th February on the Mezzanine of the [Music Library](https://www.edinburgh.gov.uk/directory-record/1229191/music-library), Central Library, 7 George IV Bridge, Edinburgh.
 
 ## Past concerts
