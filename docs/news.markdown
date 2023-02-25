@@ -14,10 +14,10 @@ The next Accidental Term dates will be:
 
 * Concert on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 * Event 261, Guitar Ensembles: Open, [Edinburgh Music Competition Festival](https://www.ecfest.org/), 3pm, St Mark's Unitarian Church, 7 St Mark's Castle Terrace, Edinburgh, EH1 2DP.
-* 1pm, Saturday 25th February on the Mezzanine of the [Music Library](https://www.edinburgh.gov.uk/directory-record/1229191/music-library), Central Library, 7 George IV Bridge, Edinburgh.
 
 ## Past concerts
 
+* 1pm, Saturday 25th February on the Mezzanine of the [Music Library](https://www.edinburgh.gov.uk/directory-record/1229191/music-library), Central Library, 7 George IV Bridge, Edinburgh.
 * 03 December 2022, end of term concert.
 * 18 March 2022, Concert at St Vincent's Chapel.
 * 2019-2022 Pandemic hiatus.
