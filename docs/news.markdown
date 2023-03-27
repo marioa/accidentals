@@ -8,14 +8,13 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* 19:15-21:15, 9th Jan 2023 – 20th March 2023 (11 sessions).
+* Dates to be determined but it should restart in September.
 
 ## Future concerts
 
-* Concert at 7:30pm on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW. Suggested donations of £5 at the door.
-
 ## Past concerts
 
+* Concert at 7:30pm on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW. Suggested donations of £5 at the door.
 * Event 261, Guitar Ensembles: Open, [Edinburgh Music Competition Festival](https://www.ecfest.org/), 3pm, St Mark's Unitarian Church, 7 St Mark's Castle Terrace, Edinburgh, EH1 2DP.
 * 1pm, Saturday 25th February on the Mezzanine of the [Music Library](https://www.edinburgh.gov.uk/directory-record/1229191/music-library), Central Library, 7 George IV Bridge, Edinburgh.<br/>
 ![Library concert.](/images/assets/LibraryConcert.jpg)
