@@ -8,7 +8,9 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* Dates to be determined but it should restart in September.
+* Mon 25 Sep - 4 Dec 2023 (11 weeks)
+* Sat 9 Dec 2023 (Christmas concert)
+* Mon 8 Jan - 18 March 2024 (11 weeks).
 
 ## Future concerts
 
