@@ -30,7 +30,7 @@ You can find more YouTube accidentals recordings [here](https://www.youtube.com/
 
 ## Guitar music websites
 
-* [Forrest Guitar Ensembles](https://www.classical-guitar-school.com/)
+* [Classical Guitar Ensemble and Quartet Music](https://sites.google.com/view/guitar-quartet-music/home) - free music provided by an ex accidental member.
 * [Forrest Guitar Ensembles](http://www.forrestguitarensembles.co.uk/)
 * [Music for Classical Guitar](https://guitarmusic.info/)
 * [Sheet music for classical guitar (notation)](https://www.scoreexchange.com/instruments/classical-guitar-notation.html)
