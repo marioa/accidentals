@@ -14,6 +14,9 @@ The next Accidental Term dates will be:
 
 ## Future concerts
 
+* Saturday 9th December, 7:30pm end of term concert. Numbers are
+  limited so if you would like to come please get in touch.
+
 ## Past concerts
 
 * Concert at 7:30pm on the 25th March at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW. Suggested donations of £5 at the door.
