@@ -11,7 +11,7 @@ in our news page and information about our subscriptions can be
 found in the about section.
 
 If you would like to try us out or have any other questions then
-please get in touch via email on [mario@epcc.ed.ac.uk](mailto:mario@epcc.ed.ac.uk).
+please get in touch via email on [accidentalguitars@gmail.com](mailto:accidentalguitars@gmail.com).
 
 ![Accidentals garden party.](/images/assets/accidentals2.png)
 

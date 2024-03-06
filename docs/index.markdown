@@ -29,6 +29,6 @@ pavillion](https://meadowscroquet.org.uk/club/find.php).  We are a
 non-profit organisation but in order to cover our costs there is a
 termly fee of £75 (£37.50 for students) in order to cover room hire,
 tutor fees and the purchase of music. Please [contact
-us](mailto:mario@epcc.ed.ac.uk) by email if you wish any more
+us](mailto:accidentalguitars@gmail.com) by email if you wish any more
 information or would like to try us out to see if it is something
 you want to do.
