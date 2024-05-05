@@ -8,11 +8,14 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* Restart in September 2024, dates TBD.
+* Term 1: Monday 23 September to 2 December 2024.
+* Term 2: Monday 6 January to 17 March 2025.
 
 ## Future concerts
 
 * Saturday 1st June 2024, 1.00pm, [Edinburgh Central Library](https://www.edinburgh.gov.uk/directory-record/1229174/central-library), George IV Bridge, EH1 1EG.
+* Concert to friends and family - Saturday 7 December 2024.
+* Saturday 22 March 2025, venue TBD.
 
 ## Past concerts
 
