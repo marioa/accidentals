@@ -13,7 +13,7 @@ The next Accidental Term dates will be:
 
 ## Future concerts
 
-* Saturday 1st June 2024, 1.00pm, [Edinburgh Central Library](https://www.edinburgh.gov.uk/directory-record/1229174/central-library), George IV Bridge, EH1 1EG.
+* Saturday 1st June 2024, 1.00pm, [Edinburgh Central Library](https://www.edinburgh.gov.uk/directory-record/1229174/central-library), George IV Bridge, EH1 1EG. Book your [free tickets](https://www.ticketsource.co.uk/edinburgh-central-library/t-gaezeda).
 * Concert to friends and family - Saturday 7 December 2024.
 * Saturday 22 March 2025, venue TBD.
 
