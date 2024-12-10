@@ -8,16 +8,15 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* Term 1: Monday 23 September to 2 December 2024.
 * Term 2: Monday 6 January to 17 March 2025.
 
 ## Future concerts
 
-* Concert to friends and family - Saturday 7 December 2024.
 * Saturday 22 March 2025, venue TBD.
 
 ## Past concerts
 
+* Concert to friends and family - Saturday 7 December 2024.
 * Saturday 1st June 2024, 1.00pm, [Edinburgh Central Library](https://www.edinburgh.gov.uk/directory-record/1229174/central-library), George IV Bridge, EH1 1EG. Book your [free tickets](https://www.ticketsource.co.uk/edinburgh-central-library/t-gaezeda).
 * Saturday 23 March, 7:30pm [St Vincent's Chapel](https://www.stvincentschapel.org.uk/), St Vincent Street, Edinburgh EH3 6SW.
 * Saturday 9th December, 7:30pm end of term concert.
