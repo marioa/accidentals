@@ -12,7 +12,7 @@ The next Accidental Term dates will be:
 
 ## Future concerts
 
-* Saturday 22 March 2025, venue TBD.
+* 7:30pm, Saturday 29th March 2025 at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 
 ## Past concerts
 
