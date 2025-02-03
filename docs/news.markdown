@@ -10,11 +10,12 @@ The next Accidental Term dates will be:
 
 * Term 2: Monday 6 January to 17 March 2025.
 
-## Future concerts
+## Future concerts and events
 
+* 7:15pm, Event 261 - Guitar Ensembles: Open, [Edinburgh Music Competitions Festival](https://www.ecfest.org/) at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 * 7:30pm, Saturday 29th March 2025 at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
 
-## Past concerts
+## Past concerts and events
 
 * Concert to friends and family - Saturday 7 December 2024.
 * Saturday 1st June 2024, 1.00pm, [Edinburgh Central Library](https://www.edinburgh.gov.uk/directory-record/1229174/central-library), George IV Bridge, EH1 1EG. Book your [free tickets](https://www.ticketsource.co.uk/edinburgh-central-library/t-gaezeda).
