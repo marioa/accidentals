@@ -13,7 +13,7 @@ The next Accidental Term dates will be:
 ## Future concerts and events
 
 * 7:30pm, Saturday 29th March 2025 at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
-
+  ![Concert poster](/images/assets/Concert_Flyer_March_2025.png)
 ## Past concerts and events
 
 * 7:15pm, Friday 14th March 2025, Event 261 - Guitar Ensembles: Open, [Edinburgh Music Competitions Festival](https://www.ecfest.org/) at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
