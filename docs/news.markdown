@@ -8,11 +8,13 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* We should restart in Sep 2025, exact dates will be posted once they become available.
+* Term 1: Monday 6 October to 8 December, concert on Saturday 13 December.
+* Term 2: Monday 12 January 2026 to 16 March, concert on Saturday 21 March.
 
 ## Future concerts and events
 
-* Our next concert should be in late Nov/early Dec 2025.
+* Saturday 22 November, 1pm Edinburgh Central Library, George IV Bridge, EH1 1EG.
+* Saturday 13th December, concert to friends and family, 
 
 ## Past concerts and events
 
