@@ -17,7 +17,7 @@ a selection of Renaissance, Baroque, Classical, Romantic and 20th Century music 
 well as a selection of Spanish and Latin American music.
 
 The Accidentals are a non-profit organisation but in order to cover our costs there 
-is a termly fee of £75 (£37.50 for students) in order to cover room hire, tutor 
+is a termly fee of £80 (£40 for students) in order to cover room hire, tutor 
 fees and the purchase of music. Please contact us by email if you wish any more 
 information.
 
