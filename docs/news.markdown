@@ -15,7 +15,7 @@ The next Accidental Term dates will be:
 
 * Saturday 22nd November 2025, 1pm Edinburgh Central Library, George IV Bridge, EH1 1EG.
 * Saturday 13th December 2025, end of term concert to friends and family. 
-* Saurday 21st March 2025, end of term concert.
+* Saturday 21st March 2025, end of term concert.
 
 ## Past concerts and events
 
