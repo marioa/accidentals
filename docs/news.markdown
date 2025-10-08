@@ -13,7 +13,7 @@ The next Accidental Term dates will be:
 
 ## Future concerts and events
 
-* Saturday 22nd November 2025, 1pm Edinburgh Central Library, George IV Bridge, EH1 1EG.
+* Saturday 22nd November 2025, 1pm. Edinburgh Central Library, George IV Bridge, EH1 1EG. You can book your free ticket [here](https://www.ticketsource.co.uk/whats-on/edinburgh/edinburgh-central-library-mezzanine/accidentals-at-music-on-the-mezzanine/e-joadaj).
 * Saturday 13th December 2025, end of term concert to friends and family. 
 * Saturday 21st March 2025, end of term concert.
 
