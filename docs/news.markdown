@@ -14,7 +14,7 @@ The next Accidental Term dates will be:
 ## Future concerts and events
 
 * Saturday 13th December 2025, end of term concert to friends and family. 
-* Saturday 21st March 2025, end of term concert.
+* Saturday 21st March 2026, end of term concert.
 
 ## Past concerts and events
 
