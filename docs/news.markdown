@@ -8,16 +8,15 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* Term 1: Monday 6th October to 8th December.
 * Term 2: Monday 12th January 2026 to 16th March.
 
 ## Future concerts and events
 
-* Saturday 13th December 2025, end of term concert to friends and family. 
 * Saturday 21st March 2026, 7:30pm [St Vincent's Chapel](https://www.stvincentschapel.org.uk/), St Vincent Street, Edinburgh EH3 6SW.
 
 ## Past concerts and events
 
+* Saturday 13th December 2025, end of term concert to friends and family. 
 * Saturday 22nd November 2025, 1pm. Edinburgh Central Library, George IV Bridge, EH1 1EG. You can book your free ticket [here](https://www.ticketsource.co.uk/whats-on/edinburgh/edinburgh-central-library-mezzanine/accidentals-at-music-on-the-mezzanine/e-joadaj).
 * 7:30pm, Saturday 29th March 2025 at St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.  
   ![Concert poster](/images/assets/Concert_Flyer_March_2025.png)
