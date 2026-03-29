@@ -21,6 +21,7 @@ The next Accidental Term dates will be:
 <small>
 Picture credit: Kieran McCrossan.
 </small>
+
 ![Spring concert 2026.](/images/assets/2026Flyer.png)
 </div>
 * Friday 19:30, 13th March. Event 261, Guitar Ensembles: Open, [Edinburgh Music Competition Festival](https://www.ecfest.org/), St Vincent's Chapel, St Vincent Street, Edinburgh, EH3 6SW.
