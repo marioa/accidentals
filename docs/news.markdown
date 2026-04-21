@@ -8,7 +8,8 @@ permalink: /news/
 
 The next Accidental Term dates will be:
 
-* TBD after the next AGM.
+* Term 1 (provisional): 5th October - 7th December 2026
+* Term 2 (provisional): 11th January - 15th March 2027
 
 ## Future concerts and events
 
