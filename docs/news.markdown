@@ -13,6 +13,7 @@ The next Accidental Term dates will be:
 
 ## Future concerts and events
 
+* Saturday 24th April 2027, 1pm. Music on the Mezzanine, Edinburgh Central Library, George IV Bridge, EH1 1EG. You will eventually be able to book your free ticket [here](https://www.ticketsource.com/whats-on/edinburgh/edinburgh-central-library-mezzanine).
 
 ## Past concerts and events
 
